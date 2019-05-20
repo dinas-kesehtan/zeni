@@ -1,0 +1,2 @@
+# zeni
+hidup is hidup
